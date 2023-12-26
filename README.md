@@ -1,1 +1,1 @@
-- 👋 Hi, I’m @dev2it
+IT DEV TEAM SIDE PJT
